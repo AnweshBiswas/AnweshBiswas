@@ -4,19 +4,20 @@
 - 💞️ Anyone can hit me up for collaboration 
 
 Wanna stalk me ?
+
 **-Check out my ongoing as well as completed projects
 
--Collaborated projects
+**-Collaborated projects**
 
--Brainstorm with me 
+**-Brainstorm with me **
 
--Hire me as a Product Management Analyst
+**-Hire me as a Product Management Analyst**
 
--Hire me as a Growth Consultant & Analyst
+**-Hire me as a Growth Consultant & Analyst**
 
--Get me onboard as Mentor 
+**-Get me onboard as Mentor **
 
--Check out my achievements**
+**-Check out my achievements****
 
 Everythiing available at https://anwesh-biswas.super.site/
 
