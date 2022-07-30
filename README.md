@@ -5,11 +5,17 @@
 
 Wanna stalk me ?
 **-Check out my ongoing as well as completed projects
+
 -Collaborated projects
+
 -Brainstorm with me 
+
 -Hire me as a Product Management Analyst
+
 -Hire me as a Growth Consultant & Analyst
+
 -Get me onboard as Mentor 
+
 -Check out my achievements**
 
 Everythiing available at https://anwesh-biswas.super.site/
